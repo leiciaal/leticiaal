@@ -12,7 +12,6 @@ meu nome é Leticia Alves
 
 00001130278116sp@aluno.educacao.sp.gov.br
 
-
-mage](https://github.com/leici![iaal/leticiaal/assets/169057676/b3a872cd-7a0a-422d-8f22-afc392aab0ba)
+![](https://media1.tenor.com/m/htMd6zA1Ta8AAAAC/sad-crying.gif)
 
 

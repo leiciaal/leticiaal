@@ -8,11 +8,11 @@ meu nome é Leticia Alves
 
 - ultilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-###  Vôce pode entrar em contato comigo 📧
+###  Você pode entrar em contato comigo 📧
 
 00001130278116sp@aluno.educacao.sp.gov.br
 
 
-![image](https://github.com/leiciaal/leticiaal/assets/169057676/b3a872cd-7a0a-422d-8f22-afc392aab0ba)
+mage](https://github.com/leici![iaal/leticiaal/assets/169057676/b3a872cd-7a0a-422d-8f22-afc392aab0ba)
 
 
